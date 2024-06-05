@@ -1,4 +1,4 @@
-![图片](https://github.com/chenyanlingevidence/The-choice-of-common-and-sustainable-growth-/assets/171256169/ba2f9c37-cf4f-4810-96c1-8ddbed6028d7)# The-choice-of-common-and-sustainable-growth-
+# The-choice-of-common-and-sustainable-growth-
 共同持续成长的选择：这个选择营销学和品牌学已检验正确
 
 作者：陈燕玲  公开发表时间：2024年06月04日11：00
